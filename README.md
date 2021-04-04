@@ -1,0 +1,6 @@
+# morphological-closing
+
+### TUBSENYA BELOM ADA WOY
+### UDAH MAU MINGGU TERAKHIR LAGI
+### MANA CODINGNYA SUSAH LAGI
+### HADEHH :)
